@@ -128,9 +128,6 @@ The following terms apply to your use of the App obtained through the Apple App 
 
 
 
-18. Contact Us
-If you have any questions, concerns, or feedback regarding these Terms, please contact us at:
-
 CoinAIfy Support Email: coinaify@gmail.com
 
 
